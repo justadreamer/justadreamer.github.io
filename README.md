@@ -1,1 +1,1 @@
-Personal site of Yevhen Dorfman — independent software contractor.
+My professional homepage as a software contractor.
