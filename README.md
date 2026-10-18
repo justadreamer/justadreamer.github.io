@@ -1,1 +1,1 @@
-My professional homepage as a software contractor.
+My professional homepage.
